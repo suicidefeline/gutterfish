@@ -18,18 +18,18 @@ putting everything in a smooth order is hell, never attempt it yall
 10. she loves me
 11. she values me
 12. she is genuine
-13. she is respectful
-14. she's beautiful
+13. she's beautiful
+14. she is respectful
 15. she is super cool
-16. she makes me laugh
-17. she appreciates me
+16. she appreciates me
+17. she makes me laugh
 18. she can sing very well
 19. She is super kind to me
 20. she always tries her best
 21. she's electric /reference
-22. she wants to match with me
+22. she is very patient with me
 23. she is caring and nurturing
-24. she is very patient with me
+24. she wants to match with me
 25. she shows up when it matters
 26. she has accepted all my flaws
 27. she comforts me when I am down
