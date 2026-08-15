@@ -2,7 +2,7 @@
 
 # Reasons WHY I love my girlfriend!
 
-(will fill this list as I go on, I havent slept properly in 2 weeks and my brain refuses to cooperate...)
+(will fill this list as I go on, I havent slept properly in 2 weeks and my brain refuses to cooperate... and the length looks different in edit and preview oh GODD)
 
 putting everything in a smooth order is hell, never attempt it yall
 
